@@ -10,7 +10,7 @@ stack offers. No Complicated steps - just simple with real savings.
 ----------
 
 ![image](https://github.com/user-attachments/assets/703e7896-da39-4627-a595-8057d4d43140) 
-**Image source: www.chewy.com**
+**Image source: chewy.com**
 
 
 ## What kind of Chewy promocodes are avaliable ?
