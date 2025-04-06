@@ -9,7 +9,9 @@ stack offers. No Complicated steps - just simple with real savings.
 
 ----------
 
-![image](https://github.com/user-attachments/assets/703e7896-da39-4627-a595-8057d4d43140) 
+![image](https://github.com/user-attachments/assets/0c3f2359-fdfd-4bc0-8480-758f44bf24da)
+
+
 **Image source: chewy.com**
 
 
@@ -50,6 +52,8 @@ Looking for a quick win ?? here are the top working deals working right now:
 * Free Shipping over $49 - Always active
 
 ------
+![image](https://github.com/user-attachments/assets/589eb514-5dac-4288-ad0f-94f526c4cef5)
+
 
 ## why choose chewy? 
 
